@@ -1,5 +1,7 @@
 # LLC vs. Sole Proprietorship: Which Business Is Right for You?
 
+**Disclaimer: we earn commissions when you shop through the links below**
+
 [**Starting a business**](https://shareasale.com/r.cfm?b=617326&u=4595613&m=53954&urllink=&afftrack=) is exciting, but choosing the right business structure is a critical first step. For many entrepreneurs, the decision comes down to **LLC vs. sole proprietorship**.
 
 Understanding the differences between these two models is key to ensuring your business’s success and longevity.
